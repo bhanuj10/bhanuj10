@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on upskilling myself.<br>👯 I’m looking to collaborate on any project.<br>🤝 I’m looking for help with learning cybersecurity and networking.<br>🌱 I’m currently learning about MERN and cybersecurity.<br>💬 Ask me about computers.<br>⚡ Most people see a person, but a few see the potential.<br>😄 Pronouns: He/Him<br> 📫 How to reach me: <code>bhanuj10@users.noreply.github.com</code>
+🔭 I’m currently working on upskilling myself.<br>👯 I’m looking to collaborate on any project.<br>🤝 I’m looking for help with learning cybersecurity and networking.<br>🌱 I’m currently learning about MERN and cybersecurity.<br>💬 Ask me about computers.<br>⚡ Most people see a person, but a few see the potential.<br>😄 Pronouns: He/Him<br> 📫 How to reach me: <code>g.bhanuj2005@gmail.com</code>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/bhanuj_darks) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/bhanujgunas) [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/bhanujdarks) 

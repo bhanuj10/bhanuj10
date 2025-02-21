@@ -1,5 +1,5 @@
 # Welcome to my Profile ✌️:
-Hi I am bhanuj and I don't y yo having a visit her.<br>
+Hi I am bhanuj and I don't y yo having a visit here.<br>
 Anyways I have done some projects which I have made public go on browse my repos
 <br><br>
 😄 Pronouns: He/Him<br> 

@@ -1,4 +1,4 @@
-# Welcome to my Profile ✌️:
+# Welcome to my Profile ✌️
 Hi I am bhanuj.<br>
 Anyways I have done some projects which I have made public, go on browse my repos
 <br><br>
